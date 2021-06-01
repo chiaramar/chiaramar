@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @chiaramar
+- 👀 I’m interested in international cooperation
+- 🌱 I’m currently learning datavisualization
+- 📫 How to reach me yomaya1978@gmail.com
